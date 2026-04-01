@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/bwvjac.gif)
 ![](https://files.catbox.moe/nvka1o.gif) ⠀⠀꒰୨୧◞ 。⠀Pomaru⠀.ᐟ⠀⠀13+ .⠀⠀⠀⠀any⠀ﾉ other⠀⠀⠀₊ ˚⊹
- ﹒　＋　﹒　C*h encouraged!!　　﹒ ![](https://files.catbox.moe/hhqmbu.gif)ㅤdandys world  ﾉ  roblox area ﹒⁾⁾
+ ﹒　＋　﹒　C*h encouraged unless name says so!!　　﹒ ![](https://files.catbox.moe/hhqmbu.gif)ㅤdandys world  ﾉ  roblox area ﹒⁾⁾
  ﹒︵ 　![](https://files.catbox.moe/7ji5l7.gif)  WE LOVE OUR FRIENDSSSS !!! ^_^　  ⋆ ◞　![](https://files.catbox.moe/y4brej.gif)
 ![](https://files.catbox.moe/li7uag.gif)
 ![](https://files.catbox.moe/511bdx.png) + ![](https://files.catbox.moe/fbaku1.png) (!!cred to @hacksawing & @missingvtf.)
